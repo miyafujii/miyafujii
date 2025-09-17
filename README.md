@@ -2,13 +2,13 @@
 
  ⠀⠀ ⠀⠀ ⠀⠀  ⠀⠀ ⠀⠀⠀⠀ ⠀⠀۶ৎ ⠀⠀⌞ __𝓹romiscuous boy__ , you already know , that i'm all __*yours*__ , *what'chu waiting for ?* ⌝  ⠀
 
- ⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀⠀𝓽he name is 𝓶iya , i can speak in : *𝓣AG , 𝑬NG , 𝓣AP (just a little bit)* ⠀⠀ꉂ(˵˃ ᗜ ˂˵)
+ ⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀𝓽he name is 𝓶iya , i can speak in : *𝓣AG , 𝑬NG , 𝓣AP (just a little bit)* ⠀⠀ꉂ(˵˃ ᗜ ˂˵)
 
  ⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀⠀<img width="660" height="298" alt="image" src="https://github.com/user-attachments/assets/7fec0d97-f9fd-41dc-a2fb-b1adbccc9793" />
 
  ⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀⠀── .✦⠀⠀𝓎ou're free to __interact n c+h w me ! dw__ , i luvv it <3ㅤ♡
 
- ⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀⠀𝓲 usually kiss to show my *interest n affection towards ur pony* , 𝓹ls tell me if you're uncomfortable beforehand !
+ ⠀⠀ ⠀⠀ ⠀ ⠀⠀𝓲 usually kiss to show my *interest n affection towards ur pony* , 𝓹ls tell me if you're uncomfortable beforehand !
 
  ⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀⠀՞. .՞𐦯 ⠀⠀my [carrd](https://miyafuji.carrd.co) , all my socials r there !
 
