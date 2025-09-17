@@ -6,11 +6,11 @@
 
  ⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀⠀<img width="660" height="298" alt="image" src="https://github.com/user-attachments/assets/7fec0d97-f9fd-41dc-a2fb-b1adbccc9793" />
 
- ⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀⠀── .✦⠀⠀𝓎ou're free to __interact n c+h w me ! dw__ , i luvv it <3ㅤ♡
+ ⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀⠀  ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀⠀ ⠀⠀── .✦⠀⠀𝓎ou're free to __interact n c+h w me ! dw__ , i luvv it <3ㅤ♡
 
- ⠀⠀ ⠀⠀ ⠀ ⠀⠀𝓲 usually kiss to show my *interest n affection towards ur pony* , 𝓹ls tell me if you're uncomfortable beforehand !
+ ⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀𝓲 usually kiss to show my *interest n affection towards ur pony* , 𝓹ls tell me if you're uncomfortable beforehand !
 
- ⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀⠀՞. .՞𐦯 ⠀⠀my [carrd](https://miyafuji.carrd.co) , all my socials r there !
+ ⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀⠀՞. .՞𐦯 ⠀⠀my [carrd](https://miyafuji.carrd.co) , all my socials r there !
 
 
 <img width="1199" height="265" alt="image" src="https://github.com/user-attachments/assets/5d3f7d6e-d2a5-4c0d-a633-47e7fbe586be" />
