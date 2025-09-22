@@ -4,7 +4,8 @@
 
  ⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀ ⠀𝓽he name is 𝓶iya , i can speak in : *𝓣AG , 𝑬NG , 𝓣AP (just a little bit)* ⠀⠀ꉂ(˵˃ ᗜ ˂˵)
 
- ⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀<img width="660" height="298" alt="image" src="https://github.com/user-attachments/assets/7fec0d97-f9fd-41dc-a2fb-b1adbccc9793" />
+ ⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀⠀⠀ ⠀⠀ ⠀⠀⠀<img width="376" height="213" alt="image" src="https://github.com/user-attachments/assets/00731a3b-f47c-4952-a0d4-86f07b1821cf" />
+
 
  ⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀⠀  ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀⠀ ── .✦⠀⠀𝓎ou're free to __interact n c+h w me ! dw__ , i luvv it <3ㅤ♡
 
