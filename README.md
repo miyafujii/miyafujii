@@ -10,7 +10,7 @@
 
  ⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀𝓲 usually kiss to show my *interest n affection towards ur pony* , 𝓹ls tell me if you're uncomfortable beforehand !
 
- ⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀՞. .՞𐦯 ⠀⭐⠀[carrd](https://koriandrrs.carrd.co) , 🔥 [strawpage](https://koriandrrs.straw.page)
+ ⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀ ՞. .՞𐦯 ⠀⭐⠀[carrd](https://koriandrrs.carrd.co) , 🔥 [strawpage](https://koriandrrs.straw.page)
 
 
 <img width="1199" height="265" alt="image" src="https://github.com/user-attachments/assets/5d3f7d6e-d2a5-4c0d-a633-47e7fbe586be" />
