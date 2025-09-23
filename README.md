@@ -1,10 +1,11 @@
 <img width="1200" height="400" alt="image" src="https://github.com/user-attachments/assets/1c4b407d-fd1d-4a3b-8edf-1bce6f912a4f" />
 
  ⠀⠀ ⠀⠀ ⠀⠀  ⠀⠀ ⠀⠀⠀⠀ ۶ৎ ⠀⠀⌞ __𝓹romiscuous boy__ , you already know , that i'm all __*yours*__ , *what'chu waiting for ?* ⌝  ⠀
+ ⠀⠀ ⠀⠀ ⠀⠀  ⠀⠀ ⠀⠀⠀⠀  ⠀ ⠀⠀ ⠀⠀ ⠀⠀  ⠀⠀ ⠀⠀⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀ ⠀⠀⠀  ⠀⠀ ⠀⠀⠀⠀  best viewed in pc . . .
+ 
+ ⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀ ⠀𝓽he name is 𝓶iya , i can speak in : *𝓣AG , 𝑬NG , 𝓙AP (just a little bit)* ⠀⠀ꉂ(˵˃ ᗜ ˂˵)
 
- ⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀ ⠀𝓽he name is 𝓶iya , i can speak in : *𝓣AG , 𝑬NG , 𝓣AP (just a little bit)* ⠀⠀ꉂ(˵˃ ᗜ ˂˵)
-
- ⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀⠀⠀ ⠀⠀ ⠀⠀⠀<img width="376" height="213" alt="image" src="https://github.com/user-attachments/assets/00731a3b-f47c-4952-a0d4-86f07b1821cf" />
+ ⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀⠀⠀ ⠀⠀ ⠀<img width="376" height="213" alt="image" src="https://github.com/user-attachments/assets/00731a3b-f47c-4952-a0d4-86f07b1821cf" />
 
 
  ⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀⠀  ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀⠀ ── .✦⠀⠀𝓎ou're free to __interact n c+h w me ! dw__ , i luvv it <3ㅤ♡
